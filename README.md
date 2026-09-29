@@ -37,7 +37,7 @@
    🔗 [View LinkedIn Post](https://lnkd.in/p/ggfVysZ9)
 
 5. **Generalizing Incident Memory Beyond Payment Failures**  
-   🔗 [View LinkedIn Post]([ADD_MEMBER_5_LINKEDIN_LINK](https://lnkd.in/p/ggfVysZ9))
+   🔗 [View LinkedIn Post](https://lnkd.in/p/dNyU6g6w)
 
 6. **Performance & User Experience**  
    🔗 [View LinkedIn Post](https://www.linkedin.com/posts/vishnu-vardhan-7b8359340_github-gunja-ramanaincidentmind-activity-7510684503527419904-iaRq?utm_source=share&utm_medium=member_desktop&rcm=ACoAAFV7OjwB9yITCieg9xe3eHAh7TtHHGqGXvg)
